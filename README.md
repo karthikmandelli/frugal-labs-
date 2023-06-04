@@ -1,2 +1,3 @@
 # frugal-labs
-day -01 -- soil nutrients 
+
+https://drive.google.com/drive/folders/1D3UXG7stHyICsiZFCNRBmkgW_uD2Xsw2?usp=sharing
